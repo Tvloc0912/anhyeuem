@@ -1,4 +1,4 @@
 # lovestory
-http://demngayyeu.github.io/lovestory
+Chào mọi người ♥️
 
 Tỏ tình phong cách story
